@@ -1,6 +1,5 @@
 
-Pick &amp; Drop your favorite GIFs in your profile. Follow for more. CHECK OUT OUR OTHER REPOSITORY of Cyberpunk &amp; Vaporwave GIFs.
-Cool-Readme-ideas for your front page.
+Pick & Drop your favorite GIFs in your profile. Follow for more. CHECK OUT OUR OTHER REPOSITORY of Cyberpunk & Vaporwave GIFs (FUNK-README). 
 
 
 ## logos:
